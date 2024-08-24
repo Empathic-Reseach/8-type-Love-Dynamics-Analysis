@@ -78,3 +78,13 @@ Understanding the dynamics of love through Sternberg's Triangular Theory provide
 
 - Kordoutis, P. (n.d.). *Sternberg's Triangular Theory of Love*. Retrieved from [this link](http://www.kordoutis.gr/STLS.pdf)
 
+The related mindmap for it is available at below photo 👇:
+![enter image description here](https://i.sstatic.net/MX9sfPpB.png)
+
+https://mapify.so/share-link/rZ9lxeDXIz
+
+Or the related PowerPoint for it is available at below post 👇:
+
+![enter image description here](https://i.sstatic.net/oT82LriA.jpg)
+
+https://app.presentations.ai/view/78UyTf
